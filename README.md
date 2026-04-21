@@ -1,2 +1,2 @@
-# N-p-B-i-T-p-AI
-Ninh Công Uy ,...
+Ninh Công Uy 
+MSSV : 31251025315
